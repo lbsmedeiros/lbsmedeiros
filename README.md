@@ -2,7 +2,7 @@
 - How to reach me:
 -   E-mail: lbsmedeiros@gmail.com
 -   Instagram: @leomedeirosofficial
--   Discord: leo_medeiros, https://www.linkedin.com/in/leonardo-medeiros-6266156b/
+-   Discord: leo_medeiros
 -   LinkedIn: https://www.linkedin.com/in/leonardo-medeiros-6266156b/
 
 <!---
